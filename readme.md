@@ -1,3 +1,7 @@
+![bb-bold-github](https://github.com/user-attachments/assets/b35b8315-d150-4013-8e36-54a21d315705)
+
+
+
 # Making the BlackBerry Bold 9900 Usable in 2024
 
 ---
